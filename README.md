@@ -1,3 +1,5 @@
 ![](https://files.catbox.moe/q89q9e.png)
 art by me featuring [cat](https://github.com/cIearsky) and [ed](https://github.com/EDDISODE)
 ![](https://files.catbox.moe/uec7co.jpeg)
+![](https://files.catbox.moe/s7nmiz.png)
+art by [cat](https://github.com/cIearsky)
