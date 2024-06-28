@@ -3,3 +3,4 @@ art by me featuring [cat](https://github.com/cIearsky) and [ed](https://github.c
 ![](https://files.catbox.moe/uec7co.jpeg)
 ![](https://files.catbox.moe/s7nmiz.png)
 art by [cat](https://github.com/cIearsky)
+![](https://files.catbox.moe/nwjwda.png)
